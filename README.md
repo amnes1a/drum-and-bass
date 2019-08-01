@@ -1,6 +1,6 @@
 # Liquid
 
-Liquid es <3
+Liquid es ❤️
 
 - Etherwood - Begin By Letting Go (https://www.youtube.com/watch?v=P1-7oQpFbwg)
 - Shy FX - Call Me (https://www.youtube.com/watch?v=WQntAabtNuE)
